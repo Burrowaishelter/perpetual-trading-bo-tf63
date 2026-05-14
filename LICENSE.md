@@ -1,4 +1,4 @@
-# 
+# perpetual trading bot ultimate Strategy | perpetual-trading & webhook-support offers the most advanced perpetual trading bot, with perpetual-trading and webhook-support. Ideal for
 
 
 
